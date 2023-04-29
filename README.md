@@ -1,4 +1,3 @@
-Bibliography
 Baltimore, WBAL-TV 11. The struggles first generation college students face. 6 October 2022. 24 April 2023. https://www.youtube.com/watch?v=0sCnwKgRTzY
 
 Cech, Erin. "Giving back or giving up: Native American student experiences in science and engineering." 2014. APA PsycNet. 25 April 2023. https://psycnet.apa.org/record/2014-29268-010 
