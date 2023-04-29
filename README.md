@@ -31,6 +31,6 @@ Taningco, Maria Teresa V. STEM Professions: Opportunities and Challenges for Lat
 
 Temming, Maria. STEM's racial, ethnic, and gender gaps are still strikingly large. 14 April 2021. 21 April 2023. https://www.sciencenews.org/article/science-technology-math-race-ethnicity-gender-diversity-gap
 
-
+Education, U.S. Department of. U.S. Department of Education Launches New Initiative to Enhance STEM Education for All Students. 7 December 2022. 27 April 2023. https://www.ed.gov/news/press-releases/us-department-education-launches-new-initiative-enhance-stem-education-all-students
 
 
